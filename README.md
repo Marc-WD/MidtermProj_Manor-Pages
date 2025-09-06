@@ -1,1 +1,1 @@
-# MidtermProj_Manor-Pages
+# MidtermProj_Major-Pages
